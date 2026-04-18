@@ -1,5 +1,5 @@
 # 💫 About Me:
--🎓 Final year student (Banking & Insurance)<br>-  Currently working in Sales at Metavision Technology Pvt. Ltd. —<br> learning how business actually works<br>- ✍️ Passionate about calligraphy and design<br>- 🧶 Founder of khushloops turning creativity into income.<br><br>
+-🎓 Graduate student (Banking & Insurance)<br>-  Currently working in Sales at Metavision Technology Pvt. Ltd. —<br> learning how business actually works<br>- ✍️ Passionate about calligraphy and design<br>- 🧶 Founder of khushloops turning creativity into income.<br><br>
 
 
 ## 🌐 Socials:
